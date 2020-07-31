@@ -85,3 +85,6 @@
     
 + (JB) We would sit in Jon-o's living room and do the ol' replace-the-vodka-with-water routine.  Then go out tipsy and meet up with Jon-os older (I think?) high school friends (names?).  Remember something about them having a blender in their kitchen.  Can't remember if we joked about that or if a kitchenaid blender just really owns the space.
     + Jon-o, JB
+
++ (Mark) One time at an overnight youth group event at AJ — we must have been 8 or 9 — we were both wearing sweatpants made up a game where we would see who could slide farther on our knees on the smooth wooden floor. Can hardly remember who else was there, but we blew the rest of the kids out of the water. I remember that after a few rounds I began ceremonially bowing to you before each slide, which you were convinced unlocked a god-tier level of sweatpants-sliding skill.
+    + Jonathan, synagogue kids
